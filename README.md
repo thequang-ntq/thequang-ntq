@@ -12,17 +12,24 @@
 
 ## Songs that I like
 
-https://github.com/thequang-ntq/thequang-ntq/assets/115056697/a50ea812-36c7-430d-b1fc-fe8e71073655
+
+
+https://github.com/thequang-ntq/thequang-ntq/assets/115056697/601f7768-f95f-447a-aa22-5a86db901197
+
 
 ------
 
-### ⚡ Fun fact: 
+## ⚡ Fun fact: 
 
 - You can't hum if you hold your nose. Hands up if you just tried it!
 
-##### P.S
+------
+
+## P.S
 
 - 🌱 I’m currently studying at Hue University of Sciences ...
+ 
+------
 
 <br/>  
 
